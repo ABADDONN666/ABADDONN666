@@ -5,7 +5,7 @@
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&width=435&lines=it's+all+this+dumb+priests+fault!!!;blame+him...)](https://git.io/typing-svg)
 
 	
-[strawpage](https://praise-the-lamb.straw.page/)
+    [strawpage](https://praise-the-lamb.straw.page/)
 
                                        [ponytown info](https://praise-the-goat.straw.page/)
 
