@@ -1,8 +1,11 @@
 <p align="center">
  <img width="460" height="300" src="https://media1.giphy.com/media/v1.Y2lkPTZjMDliOTUycjdhZzB6dHFsbGpvbXpsZTc5Njc1em5wOGszZHhjN3FxZ292MGxtZSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/5d7Sf10oeyVzK8GXUa/200.gif"
 	 </p>
-  
-     [strawpage](https://praise-the-lamb.straw.page/)
+	
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&width=435&lines=it's+all+this+dumb+priests+fault!!!;blame+him...)](https://git.io/typing-svg)
+
+	
+[strawpage](https://praise-the-lamb.straw.page/)
 
                                        [ponytown info](https://praise-the-goat.straw.page/)
 
