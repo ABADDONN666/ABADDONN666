@@ -1,28 +1,19 @@
 <p align="center">
- <img width="460" height="300" src="https://media.tenor.com/5YMPXY8vAPEAAAAM/hermes-epic-the-musical.gif"
-	 </p>
 	
+                 ![](https://media1.tenor.com/m/TfomfHRT2EsAAAAd/hermes-epic.gif)
+
+</p>
+<p align="center">
+<sup><sub>[strawpage](https://praise-the-lamb.straw.page/)</sub></sup>   <sup><sub>[pt info](https://rentry.co/abaddon666)</sub></sup>  <sup><sub>[atabook](https://infestissumam.atabook.org/)</sub></sup>  <sup><sub>[prns.page](https://en.pronouns.page/@wouldnt-you-like)</sub>
+</p>
   
 
 	
-                                       [strawpage](https://praise-the-lamb.straw.page/)
 
-                                       [ponytown info](https://rentry.co/abaddon666)
 
-                                       [atabook](https://infestissumam.atabook.org/)
 
-                                       [pronouns page](https://en.pronouns.page/@wouldnt-you-like									   )
 
-                                                                      								                     
-                                  <p align="center">
-<p align="center">
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31rzt2amg34rzeq4p7bipamyjlca&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ff0000&bar_color_cover=false">
-  </a>
-</p>
 
-pin of shame
 
-08:55 PM[Pony #5] whispers: Btw you're not cool at all kid who need some attention
+
 
