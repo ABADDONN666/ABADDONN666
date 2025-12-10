@@ -13,15 +13,8 @@
 
                                        [pronouns page](https://en.pronouns.page/@wouldnt-you-like									   )
 
-                                   
-                                   
-									   
-
-                                      
-
-                      
-
-                                   <p align="center">
+                                                                      								                     
+                                  <p align="center">
 <p align="center">
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
