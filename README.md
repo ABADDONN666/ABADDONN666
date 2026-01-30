@@ -7,7 +7,6 @@
 
 <p align="center">
 	
-                 ![](https://i.pinimg.com/originals/d0/8a/91/d08a91d3a9b9764df006d7ade6d2cafc.gif)
 
 </p>
 <p align="center">
